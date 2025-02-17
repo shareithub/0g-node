@@ -2,9 +2,9 @@
 
 Dont forget to Subscribe my Channel :
 
-[ TELEGRAM CHANNEL](https://t.me/SHAREITHUB_COM)
+# [ TELEGRAM CHANNEL](https://t.me/SHAREITHUB_COM)
 
-[YOUTUBE CHANNEL](https://www.youtube.com/channel/UCUvH2S-T6T_hc7DjxhVd28A/)
+# [YOUTUBE CHANNEL](https://www.youtube.com/channel/UCUvH2S-T6T_hc7DjxhVd28A/)
 
 ---------------------------------------------------------------------------
 
